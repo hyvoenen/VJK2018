@@ -1,2 +1,3 @@
 # VJK2018
-ValiTettavasti tämä Ei vielä ole oiKea paikka. Jatkakaa kuitenkin yrittämistä, loppu on lähellä (vai onko sittenkään)
+
+Vaikka oleTEKin jo pitkällä, niin matkaa on vielä jäljellä. Mahdollisesti paljon tai vähän
