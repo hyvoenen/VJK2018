@@ -5,4 +5,5 @@ Vaikka oleTEKin jo pitkällä, niin matkaa on vielä jäljellä. Mahdollisesti p
 
 Ratkaisu löytyy lähempää kuin uskotkaan
 ↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓
+
 [][][][][][][][]
