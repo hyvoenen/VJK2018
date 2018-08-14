@@ -1,3 +1,2 @@
 # VJK2018
-
-Hienoa, olette päässeet jo pitkälle. Tämä ei kuitenkaan vielä ole ratkaisu
+ValiTettavasti tämä Ei vielä ole oiKea paikka. Jatkakaa kuitenkin yrittämistä, loppu on lähellä (vai onko sittenkään)
